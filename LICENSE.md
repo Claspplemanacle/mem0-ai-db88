@@ -1,4 +1,4 @@
-# 
+# Léger Mem0 flux de travail. Avec protection de la vie privée et interface conviviale — optimisé pour des performances et une efficacité maximales.
 
 
 
